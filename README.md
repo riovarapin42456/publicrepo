@@ -1,1 +1,1 @@
-The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
+The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
