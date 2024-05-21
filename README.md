@@ -1,1 +1,1 @@
-The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
+Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
