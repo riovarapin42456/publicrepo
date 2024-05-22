@@ -1,1 +1,1 @@
-Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
+Famous chess games, such as the Immortal Game and the Evergreen Game, are celebrated for their strategic brilliance and innovative tactics.
