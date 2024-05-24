@@ -1,1 +1,1 @@
-The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
+The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
