@@ -1,1 +1,1 @@
-The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
+Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
