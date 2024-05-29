@@ -1,1 +1,1 @@
-Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
+Fiji's national rugby sevens team is renowned for its dominance in the sport, winning multiple World Rugby Sevens Series titles and Olympic gold medals.
