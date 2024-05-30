@@ -1,1 +1,1 @@
-Fiji's national rugby sevens team is renowned for its dominance in the sport, winning multiple World Rugby Sevens Series titles and Olympic gold medals.
+The Calcutta Cup is a historic rugby union trophy contested annually between England and Scotland as part of the Six Nations Championship, with origins dating back to 1879.
