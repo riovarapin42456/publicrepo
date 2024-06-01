@@ -1,1 +1,1 @@
-The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
+Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
