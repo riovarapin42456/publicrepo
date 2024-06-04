@@ -1,1 +1,1 @@
-Rugby jerseys often feature distinctive designs and colors representing national teams or club identities, with players wearing their team's colors with pride during matches.
+Fouls in water polo are common and include minor fouls like holding, pushing, and impeding an opponent, as well as major fouls like kicking or striking an opponent.
