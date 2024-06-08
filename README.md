@@ -1,1 +1,1 @@
-The penalty shot, taken from a designated spot in front of the goal, gives the attacking player a one-on-one opportunity to score against the goalkeeper.
+Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
