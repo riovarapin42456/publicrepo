@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
