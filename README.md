@@ -1,1 +1,1 @@
-The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
+Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.
