@@ -1,1 +1,1 @@
-Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.
+Chess endgames refer to the final stage of a chess game, where only a few pieces remain on the board and strategic maneuvering becomes crucial.
