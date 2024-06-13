@@ -1,1 +1,1 @@
-Chess endgames refer to the final stage of a chess game, where only a few pieces remain on the board and strategic maneuvering becomes crucial.
+The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
