@@ -1,1 +1,1 @@
-The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
+Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
