@@ -1,1 +1,1 @@
-Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
+Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
