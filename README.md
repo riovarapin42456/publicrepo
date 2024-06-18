@@ -1,1 +1,1 @@
-Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
+Algebraic notation is the standard method for recording chess moves, with each square on the board identified by a unique letter and number combination.
