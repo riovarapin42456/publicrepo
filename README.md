@@ -1,1 +1,1 @@
-The word "checkmate" comes from the Persian phrase "shāh māt," which means "the king is helpless" or "the king is dead."
+Club competitions, such as the LEN Champions League and the Euro League, provide opportunities for professional water polo players to compete at the highest level in Europe and beyond.
