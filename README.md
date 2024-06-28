@@ -1,1 +1,1 @@
-Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.
+The modern rules of chess were standardized in Europe during the 15th century, with the game gaining popularity among nobility and intellectuals.
