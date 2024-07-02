@@ -1,1 +1,1 @@
-Water polo requires a combination of swimming speed, ball handling skills, and tactical awareness, with teams employing strategies like man-to-man defense, zone defense, and counterattacks.
+Water polo made its Olympic debut at the 1900 Summer Olympics in Paris, with Great Britain winning the gold medal.
