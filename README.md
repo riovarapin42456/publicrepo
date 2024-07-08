@@ -1,1 +1,1 @@
-A grandmaster (GM) is the highest title awarded by FIDE to chess players, recognizing their exceptional skill and performance in competitive chess.
+Matches consist of four quarters, each lasting eight minutes (in international competitions), with teams competing to score goals by throwing the ball into the opposing team's net.
