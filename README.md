@@ -1,1 +1,1 @@
-Matches consist of four quarters, each lasting eight minutes (in international competitions), with teams competing to score goals by throwing the ball into the opposing team's net.
+Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
