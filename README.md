@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+Moves are recorded by indicating the starting and ending squares of the moving piece, with additional symbols for captures, checks, and other game annotations.
