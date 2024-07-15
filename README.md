@@ -1,1 +1,1 @@
-The FINA Water Polo World Championships is the premier international tournament for water polo, featuring national teams from around the world competing for the championship title.
+Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.
