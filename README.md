@@ -1,1 +1,1 @@
-Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.
+The Sicilian Defense, the Ruy Lopez, and the Queen's Gambit are among the most popular and well-studied chess openings, each offering unique strategic opportunities.
