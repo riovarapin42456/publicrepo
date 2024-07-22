@@ -1,1 +1,1 @@
-The Sicilian Defense, the Ruy Lopez, and the Queen's Gambit are among the most popular and well-studied chess openings, each offering unique strategic opportunities.
+Scrummaging is a key aspect of rugby union, where players from each team bind together and contest for possession of the ball, requiring strength, technique, and coordination.
