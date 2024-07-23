@@ -1,1 +1,1 @@
-Scrummaging is a key aspect of rugby union, where players from each team bind together and contest for possession of the ball, requiring strength, technique, and coordination.
+Common endgame concepts include king activity, pawn promotion, and the opposition, which can determine the outcome of the game in a close contest.
