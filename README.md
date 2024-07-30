@@ -1,1 +1,1 @@
-Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.
+Rugby requires a diverse skill set, including running, passing, kicking, tackling, and scrummaging, with players specializing in specific positions based on their strengths and abilities.
