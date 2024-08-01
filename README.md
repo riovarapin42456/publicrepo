@@ -1,1 +1,1 @@
-A grandmaster (GM) is the highest title awarded by FIDE to chess players, recognizing their exceptional skill and performance in competitive chess.
+Rugby requires a diverse skill set, including running, passing, kicking, tackling, and scrummaging, with players specializing in specific positions based on their strengths and abilities.
